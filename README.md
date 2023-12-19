@@ -1,1 +1,1 @@
-# Do-al-Dil-leme
+# Dogal dil isleme
